@@ -1,5 +1,5 @@
 # What-I-Was-Looking-For
-Basically I saved linked as bookmarks that I found interesting for my future reference :)
+I saved linked as bookmarks that I found interesting for my future reference :)
 
 #SKIP TO THE ENTRY FILES
 
